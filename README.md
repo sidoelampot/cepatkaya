@@ -1,0 +1,2 @@
+# cepatkaya
+cepat kaya
